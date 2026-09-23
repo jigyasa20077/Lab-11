@@ -1,0 +1,3 @@
+Day 11 — Canva Magic Studio
+
+Day 11 focused on creating an aviation mini-campaign using Canva Magic Studio and its AI-assisted design features. The campaign included a square social-media post, portrait passenger-awareness poster and landscape presentation visual. A consistent brand guide was developed using colours, fonts, visual style and tone of voice. Canva Magic Media, Magic Expand and Magic Edit were used to create and adapt the designs. The final campaign was reviewed for brand consistency, aviation accuracy, readability, privacy, professionalism and responsible AI use. The activity demonstrated how AI-assisted design can support multiple business communication formats.
